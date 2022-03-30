@@ -1,3 +1,3 @@
 ### Olá! Eu sou o Gustavo 👋
 
-- 🌱 EU atualmente estou cursando Sistemas de Informação
+- 🌱 Eu atualmente estou cursando Sistemas de Informação
